@@ -1,0 +1,4 @@
+- I'm Emil! (they/them)
+- I'm an artist specializing in pixel art
+- Currently working on Taped Games' "Ghosting"
+- Shoot me a Dm on twitter (@copilotmagician) for whatever! ❤
