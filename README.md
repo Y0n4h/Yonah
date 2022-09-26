@@ -1,4 +1,3 @@
-- I'm Emil! (they/them)
-- I'm an artist specializing in pixel art
-- Currently working on Taped Games' "Ghosting"
-- Shoot me a Dm on twitter (@copilotmagician) for whatever! ❤
+- I'm Yonah! (she/her)
+- I'm a trans artist specializing in pixel art
+- Shoot me a Dm on twitter (@calzadomestica) for whatever! ❤
